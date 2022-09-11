@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shubhi.agarwal_cs20@gla.ac.in**
 
-- ⚡ Fun fact **I am determined and dedicated  towards my goals and to learn different technologies...**
+- ⚡ Fun fact **"I am determined and dedicated  towards my goals and to learn different technologies..."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
